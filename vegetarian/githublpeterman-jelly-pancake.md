@@ -15,3 +15,6 @@
 1. Beat Eggs with fork until well blended. Add milk and vanilla and beat with a fork.
 
 2. Add flour, sugar and salt. Try and get as smooth as you can.
+
+##Citation
+2014 http://www.tasteofhome.com/recipes/fruit-pancake-roll-ups
